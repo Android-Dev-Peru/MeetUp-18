@@ -32,7 +32,7 @@ https://www.facebook.com/events/1787931714618044/
 
 ## Sponsors
 
-- Fore Close http://forceclose.pe/
+- Force Close http://forceclose.pe/
 
 ## Grupo en Facebook 
 
